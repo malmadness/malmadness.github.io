@@ -1,2 +1,2 @@
-# malmadness.github.io
-personal blog
+# MALMADNESS
+personal blog coming soon!
